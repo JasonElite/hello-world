@@ -1,2 +1,2 @@
 # hello-world
-Jason is a skilled web designer and developer.  He specializes in Ecommerce, SEO, Cloud Migration and Computing, Back end Server Setup, and Everything Google.
+I am enthusiastic to learn everything I can and be with such a knowledgable group of individuals. 
